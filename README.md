@@ -6,5 +6,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 VOCÊ PODE ENTRAR EM CONTATO COMIGO
 
-poliana.wojdela2escola.pr.gov.br
+poliana.wojdela@escola.pr.gov.br
 @sapocururu
